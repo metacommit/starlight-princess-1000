@@ -4,13 +4,13 @@
   <img width="1280" height="720" alt="Starlight Princess 1000" src="https://github.com/user-attachments/assets/18723457-ed1a-4f72-a3db-ccc8fb128b48" />
 </a>
 
-<br>
+<br><br>
 
 <a href="https://e1sz.short.gy/w333">
   <img width="1271" height="260" alt="image" src="https://github.com/user-attachments/assets/8f99b180-69f8-4671-af1b-1968601e27d4" />
 </a>
 
-<br><br>
+<br>
 
 <h2>Pendahuluan</h2>
 
